@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @the-andrew-star
-- 🚀 I just started as a product manager at Mews!
+- 🚀 I have been a product manager at Mews since 2022
 - 👀 I’m interested in process optimisation and communities of practice
 - 🌱 I recently completed my MBA
-- 💞️ I’m looking to learn all about our products and team
+- 📷 I am into photos and wordplay (read: dad jokes)
 - 📫 How to reach me: Slack is your friend
 
 <!---
